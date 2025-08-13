@@ -1,1 +1,1 @@
-Hello word
+Hello Tradding Update next week
